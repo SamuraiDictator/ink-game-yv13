@@ -1,4 +1,4 @@
-
+Experience ink game like never before with ink game updated Scripts, the #1 Script. Includes auto-heal and god mode for unbeatable performance.
 
 
 
